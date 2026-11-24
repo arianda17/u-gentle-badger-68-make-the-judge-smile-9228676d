@@ -1,0 +1,1 @@
+The line was out the door, but the barista saw my kid crying and handed him a warm cookie, his coffee foam shaped like a dinosaur — for free.
